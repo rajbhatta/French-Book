@@ -1,2 +1,2 @@
-## French learning book ##
+## French learning websites ##
 Dulingo 
